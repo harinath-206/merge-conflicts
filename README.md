@@ -1,2 +1,2 @@
 Hari having a laptop
-Ravi dont have alaptop
+Ravi dont have laptop
