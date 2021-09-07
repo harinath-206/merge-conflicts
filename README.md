@@ -1,2 +1,2 @@
-# merge-conflicts
-Chngeing conflicts
+Hari having a laptop
+Ravi dont have alaptop
